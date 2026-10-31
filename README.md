@@ -1,5 +1,8 @@
 # 🎬 My All-Time Favorite Series: Stranger Things
 
+<img width="399" height="501" alt="image" src="https://github.com/user-attachments/assets/f21e4bbc-eccc-44fb-9c56-6a2133bc646d" />
+
+
 *"Friends don't lie."* — Eleven
 
 
