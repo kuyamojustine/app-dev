@@ -1,6 +1,3 @@
-# app-dev
-My first repository
-
 # 🎬 My All-Time Favorite Series: Stranger Things
 
 *"Friends don't lie."* — Eleven
